@@ -1,1 +1,1 @@
-# Pingpong
+TRABAJO PRÁCTICO N° 1 ROMERO SOL 
